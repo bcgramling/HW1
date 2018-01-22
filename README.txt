@@ -1,3 +1,0 @@
-Bryce Gramling
-
-Chicago Cubs
